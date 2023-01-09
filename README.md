@@ -1,1 +1,1 @@
-[link](https://rohit-mitra.github.io/parents/)
+[link](https://rohit-mitra.github.io/galleryblog/) to github page
